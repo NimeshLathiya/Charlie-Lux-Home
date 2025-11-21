@@ -1,1 +1,1 @@
-![Uploading screencapture-nimeshlathiya-charlie-lux-home-netlify-app-2025-11-21-09_14_36.png…]()
+<img width="1366" height="3766" alt="screencapture-nimeshlathiya-charlie-lux-home-netlify-app-2025-11-21-09_14_36" src="https://github.com/user-attachments/assets/841bc343-17a4-427b-8bed-2a43edadd101" />
